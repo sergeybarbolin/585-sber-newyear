@@ -1,1 +1,0 @@
-# 585-sber-newyear
